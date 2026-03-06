@@ -1,1 +1,0 @@
-# Well-Case-Study
